@@ -8,4 +8,4 @@ I am not very engaged in my study in Year 1 and 2. Part of the reason is that Ed
 
 Last thing to note here is that all the works here have been checked by Turnitin. So don't copy from here. Hope these could be helpful. :)
 
-If you want more information from me, you can just click [here](mailto://study@ydchen.cn) to email me about your questions or requests.
+If you want more information from me, you can just click [here](mailto:study@ydchen.cn) to email me about your questions or requests.
